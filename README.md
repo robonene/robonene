@@ -1,2 +1,2 @@
 ### Hi
-![Airi](inklingdab.gif)
+Discord - gnat#6114
